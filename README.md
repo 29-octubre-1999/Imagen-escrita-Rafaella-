@@ -1,1 +1,0 @@
-# Imagen-escrita-Rafaella-
